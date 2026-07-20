@@ -100,8 +100,8 @@ WhatsApp isn't just for chatting anymore — it's now a thriving ecosystem for l
 |-------|------------------|
 | Free Courses with Certificate | [Join](https://whatsapp.com/channel/0029VbB8ROL4inogeP9o8E1l) |
 | Coding Interviews | [Join](https://whatsapp.com/channel/0029VammZijATRSlLxywEC3X) |
-| Free Courses with Certificate 2|
-[Join](https://whatsapp.com/channel/0029Vamhzk5JENy1Zg9KmO2g) |
+| Free Courses with Certificate 2 | [Join](https://whatsapp.com/channel/0029Vamhzk5JENy1Zg9KmO2g) |
+
 
 ---
 
