@@ -57,8 +57,7 @@ WhatsApp isn't just for chatting anymore — it's now a thriving ecosystem for l
 | AI News | [Join](https://whatsapp.com/channel/0029VbAWNue1iUxjLo2DFx2U) |
 | AI Tools | [Join](https://whatsapp.com/channel/0029VaojSv9LCoX0gBZUxX3B) |
 | AI Agents | [Join](https://whatsapp.com/channel/0029Vb5vWhu0AgW92o23LY0I) |
-| ChatGPT |
-[Join](https://whatsapp.com/channel/0029VapThS265yDAfwe97c23) |
+| ChatGPT | [Join](https://whatsapp.com/channel/0029VapThS265yDAfwe97c23) | 
 | Perplexity AI | [Join](https://whatsapp.com/channel/0029VbAa05yISTkGgBqyC00U) |
 | Google Gemini | [Join](https://whatsapp.com/channel/0029Vb5Q4ly3mFY3Jz7qIu3i) |
 | Prompt Engineering | [Join](https://whatsapp.com/channel/0029Vb6ISO1Fsn0kEemhE03b) |
