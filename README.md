@@ -63,6 +63,7 @@ WhatsApp isn't just for chatting anymore — it's now a thriving ecosystem for l
 | Prompt Engineering | [Join](https://whatsapp.com/channel/0029Vb6ISO1Fsn0kEemhE03b) |
 | Data Science | [Join](https://whatsapp.com/channel/0029Va8v3eo1NCrQfGMseL2D) |
 | Data Science Projects | [Join](https://whatsapp.com/channel/0029VaxbzNFCxoAmYgiGTL3Z) |
+| Deeplearning AI | [Join](https://whatsapp.com/channel/0029VbAKiI1FSAt81kV3lA0t) |
 | Machine Learning | [Join](https://whatsapp.com/channel/0029VawtYcJ1iUxcMQoEuP0O) |
 | Learn DS & ML | [Join](https://whatsapp.com/channel/0029Va8v3eo1NCrQfGMseL2D) |
 | SQL for Data Analysis | [Join](https://whatsapp.com/channel/0029VanC5rODzgT6TiTGoa1v) |
