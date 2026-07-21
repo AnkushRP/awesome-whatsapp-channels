@@ -78,10 +78,6 @@ WhatsApp isn't just for chatting anymore — it's now a thriving ecosystem for l
 |-------|------------------|
 | Think Careers ❤                          | [Join](https://whatsapp.com/channel/0029VacW7ZqGE56l5nCCIQ2o)                   |
 | Tech Job Alert                           | [Join](https://whatsapp.com/channel/0029VaAr9pp1SWsz2OcKi50n)                   |
-| Freshersnow
-|
-[Join](https://whatsapp.com/channel/0029VaAUdBq2975GEUyA8K2B)
-|
 | Atul Kumar - (Jobs - Internships) 🧞    | [Join](https://whatsapp.com/channel/0029Va9Rj3F5PO13U9iYGc0b)                   |
 | NxtHiring (Professionals + Referrals)  | [Join](https://whatsapp.com/channel/0029VaFVAFrAe5VsBV8iDG2c)                   |
 | HiringDaily                             | [Join](https://whatsapp.com/channel/0029VampfEA65yDJYTHpdW3g)                   |
