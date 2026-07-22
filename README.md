@@ -76,6 +76,9 @@ WhatsApp isn't just for chatting anymore — it's now a thriving ecosystem for l
 
 | Topic | WhatsApp Channel |
 |-------|------------------|
+| College placement jobs 
+| [Join](https://whatsapp.com/channel/0029Vb8JsHb2Jl8AsCuqWG0c) 
+|
 | Think Careers ❤                          | [Join](https://whatsapp.com/channel/0029VacW7ZqGE56l5nCCIQ2o)                   |
 | Tech Job Alert                           | [Join](https://whatsapp.com/channel/0029VaAr9pp1SWsz2OcKi50n)                   |
 | Atul Kumar - (Jobs - Internships) 🧞    | [Join](https://whatsapp.com/channel/0029Va9Rj3F5PO13U9iYGc0b)                   |
@@ -94,9 +97,7 @@ WhatsApp isn't just for chatting anymore — it's now a thriving ecosystem for l
 | Job Interview Prep                 | [Join](https://whatsapp.com/channel/0029Vb5hJAG11ulYHssrVW17)                   |
 | Opportunity corner for freshers and experienced  | [Join](https://whatsapp.com/channel/0029VbBe5tl8qJ026Q3Imz1R)
 |
-| College placement jobs 
-| [Join](https://whatsapp.com/channel/0029Vb8JsHb2Jl8AsCuqWG0c) 
-|
+
 
 ---
 
