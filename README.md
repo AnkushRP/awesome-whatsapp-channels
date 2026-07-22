@@ -46,7 +46,7 @@ WhatsApp isn't just for chatting anymore — it's now a thriving ecosystem for l
 | Programming Resources | [Join](https://whatsapp.com/channel/0029VahiFZQ4o7qN54LTzB17) |
 | Python Books & Projects | [Join](https://whatsapp.com/channel/0029VaiM08SDuMRaGKd9Wv0L) |
 | Java Free Resources | [Join](https://whatsapp.com/channel/0029VamdH5mHAdNMHMSBwg1s) |
-
+| Great Learning Academy | [Join](https://whatsapp.com/channel/0029VadrHzr9MF901TTGHQ0O) |
 ---
 
 ## 🤖 AI, ML & Data Science
