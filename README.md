@@ -94,7 +94,7 @@ WhatsApp isn't just for chatting anymore — it's now a thriving ecosystem for l
 | Job Interview Prep                 | [Join](https://whatsapp.com/channel/0029Vb5hJAG11ulYHssrVW17)                   |
 | Opportunity corner for freshers and experienced  | [Join](https://whatsapp.com/channel/0029VbBe5tl8qJ026Q3Imz1R)
 | Freshersnow.com | [Join](https://whatsapp.com/channel/0029VaAUdBq2975GEUyA8K2B)
-
+| College placement | [Join](Placement acciojob) |
 
 ---
 
